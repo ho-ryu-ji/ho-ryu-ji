@@ -1,5 +1,5 @@
 ### Hi there 👋
-I'm CTO of Water is 無. I'm a beginner of web design. I'll mainly push the srcs of the website of Water is 無.. (sometimes edit ASID-HD jumang made) Thank you!
+  CTO of Water is 無.
 
 <!--
 **ho-ryu-ji/ho-ryu-ji** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
