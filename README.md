@@ -1,15 +1,18 @@
-### Hi there 👋
-  CTO of Water is 無.
+## im here now 👋
 
-**ho-ryu-ji/ho-ryu-ji** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### he/ him
 
-Here are some ideas to get you started:
+### CTO of 'Water is 無'.
+- WiM official website [https://www.waterism.co.jp/] (URL)
+- WiM official Instagram [https://www.instagram.com/water_is_m/?hl=ja] (URL)<br>
+**おしゃれなんてくそくらえ**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+### To have various clothes has *no* points
+
+### motto
+know that don’t know anything
+
+### him wired 
+- twitter[https://twitter.com/yousui_sokkuri](URL)
+- Instagram[https://www.instagram.com/inoueyousui_sokkuri/?hl=ja](URL)
+- Pinterest[https://www.pinterest.jp/inoueyousui_sokkuri/_saved/](URL)
